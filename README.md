@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حياتي نظرة عينيك
+> تسحر قلبي وأنا ليك
+> نار الشوق بتكوي الروح
+> طول الليل أنا بناديك
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
